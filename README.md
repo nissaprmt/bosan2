@@ -1,0 +1,2 @@
+# bosan2
+TESTNET PANJANG 2
